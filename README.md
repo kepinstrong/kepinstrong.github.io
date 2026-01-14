@@ -1,1 +1,0 @@
-# kepinstrong.github.io
